@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Nathaly
+- 🎀 I’m interested in computer science and coding programs as a hobby, I also find interesting art, history and chess ^^
+- 📖 I’m currently learning Java, c# and c++
+- 📫 How to reach me: ig: chxrry.nathy
+- 🖇️ Pronouns: She/Her
+- ⚡ Fun fact: I´m a person with curious, witty, and adaptable personality traits.
